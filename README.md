@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Cleancent26
-i'm interested in information technology.
+- 👋 Hi, I’m Eshemokhai Innocent Oghenemiagha 
+i'm interested in information and technology.
 I’m currently learning data analytics.
 - 💞️ I’m looking to collaborate on any project/course in data analytics.
 - 📫 you can reach me via;
