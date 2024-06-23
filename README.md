@@ -5,9 +5,9 @@ I’m currently learning data analytics.
 - 📫 you can reach me via;
 - twitter @cleancent26
 - gmail:cleancent26@gmail.com
-- mobile:07066113734
+- mobile:+2347066113734 | +2349022773311
 - 😄 Pronouns: Mr.
-- ⚡ Fun fact: I love tennis,swimming and listening to news.
+- ⚡ Fun fact: I love tennis,gadgets and tech.
 
 <!---
 Cleancent26/Cleancent26 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
